@@ -1,0 +1,1 @@
+https://predictyourluckynumber.netlify.app
